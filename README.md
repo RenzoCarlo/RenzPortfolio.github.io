@@ -1,4 +1,4 @@
-# RenzPortfolio.github.io
+# PORTFOLIO
 
 ### Education 
 Highschool Graduate GAS, CITE
