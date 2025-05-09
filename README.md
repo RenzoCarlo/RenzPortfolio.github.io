@@ -1,9 +1,16 @@
-# PORTFOLIO
+# PROFILE
 
 ### Education 
 Highschool Graduate GAS, CITE
 
-### Work Experience
+### Trainings/Seminars
 none
 
-### Works
+### Projects
+
+### Job Experience
+none
+
+Contact Us
+phone number: +63 998 417 4796
+gmail: arenzocarlo@gmail.com
