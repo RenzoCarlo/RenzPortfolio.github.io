@@ -4,13 +4,13 @@
 Highschool Graduate GAS, CITE
 
 ### Trainings/Seminars
-none
+CITE S.T.O.P
 
 ### Projects
+none
 
 ### Job Experience
 none
 
-Contact Us
+### Contact Us
 phone number: +63 998 417 4796
-gmail: arenzocarlo@gmail.com
